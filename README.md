@@ -12,7 +12,7 @@ Check out my work and websites below 👇
 ## 🌐 My Websites
 - [🚗 Car Parking MP](https://carparkingmp.com)
 - [💬 Honistaa Pro](https://honistaa.pro)
-- [📸 Snappchat](https://snappchat.pto)
+- [📸 Snappchat](https://snappchat.pro)
 
 ---
 
